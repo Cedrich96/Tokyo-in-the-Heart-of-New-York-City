@@ -1,1 +1,0 @@
-# Tokyo-in-the-Heart-of-New-York-City
